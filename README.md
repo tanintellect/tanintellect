@@ -82,7 +82,7 @@ I run **[@zos.tan](https://instagram.com/zos.tan)** on Instagram and **[@tanishk
 
 ## 🔬 Research
 
-- Review article is published — *Transdiagnostic Behavioural Addictions* (targeting Journal of Behavioral Addictions)
+- Review article is published — *Transdiagnostic Behavioural Addictions* 
 
 ---
 
